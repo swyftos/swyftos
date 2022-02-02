@@ -1,5 +1,1 @@
-- 👋 Hi, I’m @swyftos
-- 👀 I’m interested in coding
-- 🌱 I’m currently learning school
-- 💞️ I’m looking to collaborate on your mom
-- 📫 How to reach me swyftøs#0002
+hacked 
